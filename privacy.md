@@ -1,5 +1,5 @@
                
-                                                                       Privacy Policy
+                                                       Privacy Policy
  
  
 arrestchat built the arrestchat app as a Free app. This SERVICE is provided by arrestchat at no cost and is intended for use as is.
